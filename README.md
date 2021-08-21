@@ -2,7 +2,7 @@
 - 👀 I’m interested in Anything
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on someting fun
-- 📫 How to reach me tinsta/tik tok
+- 📫 How to reach me insta/tik tok
 
 <!---
 Scar091/Scar091 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
